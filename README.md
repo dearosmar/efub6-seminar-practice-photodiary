@@ -1,0 +1,1 @@
+# efub6-seminar-practice-photodiary
